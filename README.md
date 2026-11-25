@@ -1,1 +1,0 @@
-# spopo-anti-link
